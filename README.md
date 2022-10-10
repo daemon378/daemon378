@@ -1,5 +1,2 @@
 - 👋 Hi, I’m daemon
-- 👀 I’m interested in ... Servers
-- 🌱 I’m currently learning ... Software operator
-- 💞️ I’m looking to collaborate on ... by myself
 - 📫 How to reach me ... https://vk.com/ivannnkiss
