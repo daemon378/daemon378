@@ -1,2 +1,2 @@
 - 👋 Hi, I’m daemon
-- 📫 How to reach me ... https://vk.com/ivannnkiss
+- 📫 How to reach me ... https://www.instagram.com/ivannnkiss/
